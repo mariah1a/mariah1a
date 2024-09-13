@@ -1,16 +1,24 @@
-## Hi there 👋
+## *OI GALERA!* 🐈‍⬛
 
-<!--
-**mariah1a/mariah1a** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**Mariáh Cruz**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+**- 🐈‍⬛ Meu nome é Mariáh!**
+
+**- 🌙 Tenho 15 anos**
+
+**- 🧠 Amo jogos onlines**
+
+**- ⚓ Estudo atualmente no Colégio Estadual João XXIII.**
+
+
+
+-
+-
+-
+-
+-  **ENTRE EM CONTATO COMIGO ATRAVÉS DO SEGUINTE EMAIL: mariah.cruz@escola.pr.gov.br**
+
+
+  ![](https://tenor.com/nwZqoFM5CWo.gif)
